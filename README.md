@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @fuzhusi
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning C++
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me qq302441419
+-I just a student,don't both me.
